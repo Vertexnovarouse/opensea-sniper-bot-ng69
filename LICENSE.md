@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with advanced opensea sniper bot | whitelist-bypass + liquidity-analysis. Featuring whitelist-bypass and liquidity-analysis, it's the best
 
 
 
